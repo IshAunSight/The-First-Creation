@@ -7,8 +7,10 @@ This will be my first Project!
 
 Yea this will be alot of work T-T
 
- I'm really excited for the finsihed product :D
+ I'm really excited for the finished product :D
 
  This is just the beginning... 
 
  Will I continue to improve and make better projects?... Only time will tell...
+
+ Stay Frosty :3
